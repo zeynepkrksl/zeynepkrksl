@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Zeynep++
 - 👀 I’m interested in coding, as you can see
-- 🌱 Still trying to find the path
+- 🌱 Doing Projects
 - 💞️ Open for collab 
 - 😄 Pronouns: she/her
 - ⚡ Let's go!
